@@ -1,4 +1,7 @@
-### Hi there 👋
+### **Maria Vitoria**
+### 3 ano B - Tecnologia
+![](https://github.com/mavi345/mavi345/assets/170113196/c5ad5a02-9bd5-422d-9242-831163f5ff56)
+
 
 <!--
 **mavi345/mavi345** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
